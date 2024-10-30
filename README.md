@@ -1,1 +1,0 @@
-# thaiany.html
